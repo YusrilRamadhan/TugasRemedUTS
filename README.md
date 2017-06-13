@@ -1,0 +1,11 @@
+# TugasRemedUTS
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-14-33%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-14-42%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-14-45%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-14-49%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-14-51%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-15-00%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-15-08%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-15-20%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-16-52%5B1%5D.png) <br>
+![Screenshot](https://github.com/YusrilRamadhan/TugasRemedUTS/blob/master/Screenshot_2017-06-13-10-16-56%5B1%5D.png) <br>
